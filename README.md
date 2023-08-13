@@ -1,2 +1,3 @@
 # Guilherme
-Falando sobre mim
+Falando sobre mim...
+Segue a baixo o link para uma breve aprentação:
